@@ -38,5 +38,3 @@ Contributions are most welcome
 ## License
 
 [Apache License 2.0](LICENSE) 
-
-https://www.hdfilmcehennemi.ltd/film/baba-3-1990-izle/
